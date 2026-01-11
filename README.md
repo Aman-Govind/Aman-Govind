@@ -14,6 +14,10 @@
   *August 2023 – Present*  
   - 1st Sem SGPA: 7.96
   - 2nd Sem SGPA: 7.6
+  - 3rd Sem SGPA: 7.4
+  - 4th Sem SGPA: 7.8
+  - 5Tth Sem SGPA : 6.3
+    
 
 - **Class 11th & 12th**  
   Ithithanam Higher Secondary School
